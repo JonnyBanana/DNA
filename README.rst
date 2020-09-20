@@ -104,3 +104,12 @@ Additional information about DNA storage in general
 .. _The Xenotext Experiment: http://triplehelixblog.com/2014/01/the-xenotext-experiment/
 .. _If You Were a Secret Message, Where in the Human Genome Would You Hide?: http://nautil.us/blog/-if-you-were-a-secret-message-where-in-the-human-genome-would-you-hide
 .. _Store digital files for eons in silica-encased DNA: http://hackaday.com/2015/02/21/store-digital-files-for-eons-in-silica-encased-dna
+
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
